@@ -1,1 +1,3 @@
-hi im gjy
+hi I'm Jayoung
+Nice to meet you
+
